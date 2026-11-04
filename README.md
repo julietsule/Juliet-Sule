@@ -1,4 +1,4 @@
-Hi, I’m Sule Juliet Ojodomo 👋
+Hi, I’m Sule Juliet Ojodomo 
 
 Data Analyst | Statistics Graduate | Machine Learning Enthusiast
 
